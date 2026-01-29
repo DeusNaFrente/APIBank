@@ -1,4 +1,4 @@
-O PROJETO AINDA ESTA EM DESENVOLVIMENTO - ABAIXO É O QUE JÁ ESTA PRONTO - Subi apenas algumas fotos porque este projeto já tem um destino e propósito. Caso interesse podemos agendar apresentação. (miltonconsultordeti@gmail.com)
+O PROJETO AINDA ESTA EM DESENVOLVIMENTO - é um Saas - ABAIXO É O QUE JÁ ESTA PRONTO - Subi apenas algumas fotos porque este projeto já tem um destino e propósito. Caso interesse podemos agendar apresentação. (miltonconsultordeti@gmail.com)
 
 🧠 Linguagem & Plataforma
 
